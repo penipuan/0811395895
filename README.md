@@ -1,2 +1,4 @@
-# 0811395895
-0811395895 hati hati dengan nmor ini dan  link ini https://www.call-center-tunaiku.com/    https://www.swara-tunaiku.com 
+# 0811395895 NOMOR PENIPU MENGATASNAMAKAN PINJAMA TUNAIKU..
+# INI IG NYA https://www.instagram.com/pembatalantunaiku?igsh=dXV3d3AzYzZ6d3Ru
+SYA SUDAH DI TIPU JUTAAN RUPIAH
+WASPADA DAN BERHATI HATI
